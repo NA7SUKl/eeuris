@@ -1,6 +1,23 @@
-<p align="center">
+<div align="center">
 
-  [euris](https://bluuworldthac00landdawesumm.fandom.com/wiki/Euris)   fictkin
+[∔ㅤeuris](https://bluuworldthac00landdawesumm.fandom.com/wiki/Euris) fictkinㅤㅤdoubles(?) iwec‿
 
-</p>
-wip bc im lazzyyy
+</div>
+
+<div align="center">
+bluuworldㅤfan
+</div>
+
+<div align="center">
+<img width="618" height="316" alt="image" src="https://github.com/user-attachments/assets/25ce752e-07bb-42c2-9186-347d6f7a07eb" />
+</div>
+
+<div align="center">
+GET OUT 118O8
+</div>
+
+<div align="center">
+
+[新book](https://euris.atabook.org/)
+
+</div>
